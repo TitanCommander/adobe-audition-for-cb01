@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Audition for PC | Adobe Audition for Windows script with Adobe Audition for PC | Adobe Audition for Windows updated Script: compression & real-time-preview.
 
 
 
